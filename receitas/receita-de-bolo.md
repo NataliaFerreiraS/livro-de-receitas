@@ -14,6 +14,6 @@
 
 2. Despeje a massa em uma forma untada e polvilhada com farinha de trigo.
 
-1. Asse em forno médio (180° C), preaquecido, por 40 minutos.
+1. Asse em forno médio (180° C), preaquecido, por 40 minutos;
 
 1. Sirva frio.
